@@ -9,4 +9,4 @@ Over the past 8 years, I have worked alongside incredible designers and develope
 
 `Dribbble` : <https://dribbble.com/mattwilldesign>
 
-`Discord` : <https://github.com>
+`Discord` : <https://discordapp.com/users/209966957385089024>
