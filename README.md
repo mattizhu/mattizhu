@@ -5,7 +5,7 @@ Over the past decade, I have worked alongside incredible designers and developer
 
 `Twitter` : <https://twitter.com/mattizhu>
 
-`Instagram` : <https://instagram.com/official_mattizhu>
+`Instagram` : <https://instagram.com/mattwill1993>
 
 `Dribbble` : <https://dribbble.com/mattwilldesign>
 
